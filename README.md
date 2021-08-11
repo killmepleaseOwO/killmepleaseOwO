@@ -1,0 +1,5 @@
+- 👋 Hi, I’m [redacted]
+- 👀 I’m interested in dying as soon as possible
+- 🌱 I’m currently learning easy ways to unalive myself
+- 💞️ I’m looking to collaborate on my death
+- 📫 How to reach me ... please don't
