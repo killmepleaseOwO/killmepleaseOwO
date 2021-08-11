@@ -1,5 +1,4 @@
-- 👋 Hi, I’m [redacted]
-- 👀 I’m interested in dying as soon as possible
-- 🌱 I’m currently learning easy ways to unalive myself
-- 💞️ I’m looking to collaborate on my death
-- 📫 How to reach me ... please don't
+- 👋 Hi, I’m Alexandra
+- 👀 I’m interested in a lot of things, *including dying asap*
+- 🌱 I’m currently learning JS, HTML, CSS and more webdev stuff
+- 📫 How to reach me ... please don't :) i am not nice
