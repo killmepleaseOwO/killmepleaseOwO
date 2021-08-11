@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Alexandra
 - 👀 I’m interested in a lot of things, *including dying asap*
 - 🌱 I’m currently learning JS, HTML, CSS and more webdev stuff
-- 📫 How to reach me ... please don't :) i am not nice
+- 📫 How to reach me ... please don't :) i am not nice, i am cringe
